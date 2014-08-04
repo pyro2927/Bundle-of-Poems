@@ -7,7 +7,7 @@ The 'Bundle of Poems' found when cleaning my basement.  Retyped here exactly as 
 ```
 Alfred ate an apple,
 Each and every Easter
-'Til ullnes stuck him.
+'Til illness stuck him.
 After pasta in the afternoon,
 His mom said to go to bed.
 He sat by his fat cat,
